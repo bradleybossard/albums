@@ -16,3 +16,7 @@
 [Era Vulgaris by Queens Of The Stone Age](https://music.amazon.com/albums/B000ZJV52I)
 
 [...Like Clockwork by Queens Of The Stone Age](https://music.amazon.com/albums/B01M1SWGIN)
+
+### Hip Hop
+
+[Violator: The Album by Various artists](https://music.amazon.com/albums/B001NZZH5E)
