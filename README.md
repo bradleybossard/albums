@@ -20,3 +20,5 @@
 ### Hip Hop
 
 [Violator: The Album by Various artists](https://music.amazon.com/albums/B001NZZH5E)
+
+[Stimulus Package by V-White & The Politician](https://music.amazon.com/albums/B004CE1YCI)
