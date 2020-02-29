@@ -1,5 +1,9 @@
 # albums
 
+### Metal
+
+[Master of Puppets by Metallica](https://music.amazon.com/albums/B07558DQJL)
+
 ### Punk
 
 [Street Worms by Viagra Boys](https://music.amazon.com/albums/B07PJTGVQL)
@@ -22,3 +26,7 @@
 [Violator: The Album by Various artists](https://music.amazon.com/albums/B001NZZH5E)
 
 [Stimulus Package by V-White & The Politician](https://music.amazon.com/albums/B004CE1YCI)
+
+### JJ Cale
+
+[Stay Around by J.J. Cale](https://music.amazon.com/albums/B07NQTXQF3)
