@@ -70,3 +70,7 @@
 [Give 'Em Enough Rope by The Clash](https://music.amazon.com/albums/B00EQRLAA2)
 
 [The Clash by The Clash](https://music.amazon.com/albums/B00EQRIGSG)
+
+### Soundtracks
+
+[Fight Club (Original Motion Picture Score) by THE DUST BROTHERS](https://music.amazon.com/albums/B002LQI738)
