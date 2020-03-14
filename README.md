@@ -42,3 +42,15 @@
 ### JJ Cale
 
 [Stay Around by J.J. Cale](https://music.amazon.com/albums/B07NQTXQF3)
+
+### Punk
+
+[Combat Rock by The Clash](https://music.amazon.com/albums/B00EQRHVEQ)
+
+[London Calling by The Clash](https://music.amazon.com/albums/B00EQRJLQC)
+
+[Sandinista! by The Clash](https://music.amazon.com/albums/B00EQRLURK)
+
+[Give 'Em Enough Rope by The Clash](https://music.amazon.com/albums/B00EQRLAA2)
+
+[The Clash by The Clash](https://music.amazon.com/albums/B00EQRIGSG)
