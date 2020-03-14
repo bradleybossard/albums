@@ -27,6 +27,12 @@
 
 [2001 [Instrumental] by Dr. Dre on Amazon Music Unlimited](https://music.amazon.com/albums/B000WLYJN6)
 
+[Tarantula by Mystikal](https://music.amazon.com/albums/B00138H2NQ)
+
+[Unpredictable by Mystikal](https://music.amazon.com/albums/B00138JBWG)
+
+[Let's Get Ready by Mystikal](https://music.amazon.com/albums/B006U64752)
+
 [Compton](https://music.amazon.com/albums/B0147KC6LE)
 
 [Violator: The Album by Various artists](https://music.amazon.com/albums/B001NZZH5E)
