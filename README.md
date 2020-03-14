@@ -23,6 +23,12 @@
 
 ### Hip Hop
 
+[2001 by Dr. Dre](https://music.amazon.com/albums/B0013GH9AO)
+
+[2001 [Instrumental] by Dr. Dre on Amazon Music Unlimited](https://music.amazon.com/albums/B000WLYJN6)
+
+[Compton](https://music.amazon.com/albums/B0147KC6LE)
+
 [Violator: The Album by Various artists](https://music.amazon.com/albums/B001NZZH5E)
 
 [Stimulus Package by V-White & The Politician](https://music.amazon.com/albums/B004CE1YCI)
