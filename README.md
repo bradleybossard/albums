@@ -14,6 +14,22 @@
 
 [The Downward Spiral by Nine Inch Nails](https://music.amazon.com/albums/B000VZJUGY)
 
+[With Teeth by Nine Inch Nails](https://music.amazon.com/albums/B000VZFYDC)
+
+[The Fragile -Left by Nine Inch Nails](https://music.amazon.com/albums/B000WTZC2K)
+
+[Broken by Nine Inch Nails](https://music.amazon.com/albums/B001O3UJ8K)
+
+[Hesitation Marks by Nine Inch Nails](https://music.amazon.com/albums/B00EQNYOYU)
+
+[Add Violence by Nine Inch Nails](https://music.amazon.com/albums/B0743LNSXN)
+
+[Year Zero by Nine Inch Nails](https://music.amazon.com/albums/B000VZSEWA)
+
+[The Slip by Nine Inch Nails](https://music.amazon.com/albums/B001CFOPMQ)
+
+[Bad Witch by Nine Inch Nails](https://music.amazon.com/albums/B07DP6XSCQ)
+
 
 ### Desert Rock
 
