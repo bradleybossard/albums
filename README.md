@@ -4,6 +4,16 @@
 
 [Master of Puppets by Metallica](https://music.amazon.com/albums/B07558DQJL)
 
+[Garage, Inc by Metallica](https://music.amazon.com/albums/B00AH6BHF4)
+
+[Kill 'em All by Metallica](https://music.amazon.com/albums/B00AH69GCU)
+
+[...And Justice for Allby Metallica](https://music.amazon.com/albums/B07GX486Q8)
+
+[Ride the Lightning by Metallica](https://music.amazon.com/albums/B00AH69T22)
+
+[Metallica by Metallica](https://music.amazon.com/albums/B00AH69ZN0)
+
 ### Punk
 
 [Street Worms by Viagra Boys](https://music.amazon.com/albums/B07PJTGVQL)
@@ -58,6 +68,16 @@
 ### JJ Cale
 
 [Stay Around by J.J. Cale](https://music.amazon.com/albums/B07NQTXQF3)
+
+### Rage Against The Machine
+
+[Rage Against the Machine by Rage Against the Machine](https://music.amazon.com/albums/B00138KCC4)
+
+[Evil Empire by Rage Against the Machine](https://music.amazon.com/albums/B004298TK8)
+
+[The Battle of Los Angeles by Rage Against the Machine](https://music.amazon.com/albums/B00138KDO6)
+
+[Renegades by Rage Against The Machine](https://music.amazon.com/albums/B00136JSX0)
 
 ### Punk
 
