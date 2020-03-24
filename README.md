@@ -79,6 +79,8 @@
 
 [Renegades by Rage Against The Machine](https://music.amazon.com/albums/B00136JSX0)
 
+[8-Bit Versions of Rage Against the Machine by 8-Bit Misfits](https://music.amazon.com/albums/B079JFK7BW)
+
 ### Punk
 
 [Combat Rock by The Clash](https://music.amazon.com/albums/B00EQRHVEQ)
