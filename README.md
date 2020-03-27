@@ -81,6 +81,18 @@
 
 [8-Bit Versions of Rage Against the Machine by 8-Bit Misfits](https://music.amazon.com/albums/B079JFK7BW)
 
+### Social Distortion
+
+[Somewhere Between Heaven And Hell by Social Distortion](https://music.amazon.com/albums/B00138F3H8)
+
+[Sex, Love And Rock 'N' Roll by Social Distortion](https://music.amazon.com/albums/B00UXDYOPG)
+
+[White Light White Heat White Trash by Social Distortion](https://music.amazon.com/albums/B0013D8EYC)
+
+[Greatest Hits by Social Distortion](https://music.amazon.com/albums/B00UXDWAXO)
+
+[Social Distortion by Social Distortion](https://music.amazon.com/albums/B00136JNSU)
+
 ### Punk
 
 [Combat Rock by The Clash](https://music.amazon.com/albums/B00EQRHVEQ)
