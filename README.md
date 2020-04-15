@@ -108,3 +108,7 @@
 ### Soundtracks
 
 [Fight Club (Original Motion Picture Score) by THE DUST BROTHERS](https://music.amazon.com/albums/B002LQI738)
+
+### Funk
+
+[Greatest Funkin' Hits by George Clinton on Amazon Music Unlimited](https://music.amazon.com/albums/B000TETKRQ)
