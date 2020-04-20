@@ -93,6 +93,14 @@
 
 [Social Distortion by Social Distortion](https://music.amazon.com/albums/B00136JNSU)
 
+### Soundgarden
+
+[Superunknown (20th Anniversary) by Soundgarden](https://music.amazon.com/albums/B00KJO6D5S)
+
+[Badmotorfinger (25th Anniversary Remaster) by Soundgarden](https://music.amazon.com/albums/B01N8QISI7)
+
+[Down On The Upside by Soundgarden](https://music.amazon.com/albums/B000VZYFXM)
+
 ### Punk
 
 [Combat Rock by The Clash](https://music.amazon.com/albums/B00EQRHVEQ)
