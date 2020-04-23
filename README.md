@@ -120,3 +120,7 @@
 ### Funk
 
 [Greatest Funkin' Hits by George Clinton on Amazon Music Unlimited](https://music.amazon.com/albums/B000TETKRQ)
+
+### Soul
+
+[Black Pumas by Black Pumas on Amazon Music Unlimited](https://music.amazon.com/albums/B07QN748KC)
