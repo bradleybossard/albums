@@ -124,3 +124,11 @@
 ### Soul
 
 [Black Pumas by Black Pumas on Amazon Music Unlimited](https://music.amazon.com/albums/B07QN748KC)
+
+### Daft Punk
+
+[Random Access Memories by Daft Punk](https://music.amazon.com/albums/B00CRMWMZ0)
+
+[Homework by Daft Punk](https://music.amazon.com/albums/B000SNW0HA)
+
+[Discovery by Daft Punk](https://music.amazon.com/albums/B0064UPU4G)
