@@ -133,6 +133,12 @@
 
 [Discovery by Daft Punk](https://music.amazon.com/albums/B0064UPU4G)
 
+### Tame Impala
+
+[The Slow Rush by Tame Impala](https://music.amazon.com/albums/B084KYC25Z)
+
+[Currents by Tame Impala](https://music.amazon.com/albums/B00WO1YR7K)
+
 ### World
 
 [Con Todo El Mundo by Khruangbin](https://music.amazon.com/albums/B076HMG25S)
