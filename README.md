@@ -123,7 +123,7 @@
 
 ### Soul
 
-[Black Pumas by Black Pumas on Amazon Music Unlimited](https://music.amazon.com/albums/B07QN748KC)
+[Black Pumas by Black Pumas](https://music.amazon.com/albums/B07QN748KC)
 
 ### Daft Punk
 
@@ -132,3 +132,9 @@
 [Homework by Daft Punk](https://music.amazon.com/albums/B000SNW0HA)
 
 [Discovery by Daft Punk](https://music.amazon.com/albums/B0064UPU4G)
+
+### World
+
+[Con Todo El Mundo by Khruangbin](https://music.amazon.com/albums/B076HMG25S)
+
+[Texas Sun by Khruangbin & Leon Bridges](https://music.amazon.com/albums/B07ZS1LH62)
