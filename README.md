@@ -144,3 +144,8 @@
 [Con Todo El Mundo by Khruangbin](https://music.amazon.com/albums/B076HMG25S)
 
 [Texas Sun by Khruangbin & Leon Bridges](https://music.amazon.com/albums/B07ZS1LH62)
+
+### Synth
+
+[Vangelis Blade Runner - Trilogy by Vangelis](https://music.amazon.com/albums/B001NTFQRY)
+
