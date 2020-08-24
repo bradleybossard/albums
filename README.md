@@ -43,9 +43,13 @@
 
 ### Desert Rock
 
+[Queens of the Stone Age by Queens Of The Stone Age](https://music.amazon.com/albums/B074FJ282C)
+
 [Era Vulgaris by Queens Of The Stone Age](https://music.amazon.com/albums/B000ZJV52I)
 
 [...Like Clockwork by Queens Of The Stone Age](https://music.amazon.com/albums/B01M1SWGIN)
+
+[Villains [Explicit] by Queens Of The Stone Age](https://music.amazon.com/albums/B071JVWN24)
 
 ### Hip Hop
 
