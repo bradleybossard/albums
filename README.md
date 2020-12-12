@@ -69,6 +69,8 @@
 
 [Stimulus Package by V-White & The Politician](https://music.amazon.com/albums/B004CE1YCI)
 
+[Mickey Avalon by Mickey Avalon](https://music.amazon.com/albums/B073JHKFDG?)
+
 ### JJ Cale
 
 [Stay Around by J.J. Cale](https://music.amazon.com/albums/B07NQTXQF3)
@@ -156,4 +158,8 @@
 ### Glam Rock
 
 [The Rise and Fall of Ziggy Stardust and the Spiders from Mars by David Bowie](https://music.amazon.com/albums/B07VZ1JTZM)
+
+### Cyberpunk
+
+[Cyberpunk by Billy Idol](https://music.amazon.com/albums/B0718SWSHL)
 
