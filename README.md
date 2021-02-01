@@ -1,19 +1,5 @@
 # albums
 
-### Metal
-
-[Master of Puppets by Metallica](https://music.amazon.com/albums/B07558DQJL)
-
-[Garage, Inc by Metallica](https://music.amazon.com/albums/B00AH6BHF4)
-
-[Kill 'em All by Metallica](https://music.amazon.com/albums/B00AH69GCU)
-
-[...And Justice for Allby Metallica](https://music.amazon.com/albums/B07GX486Q8)
-
-[Ride the Lightning by Metallica](https://music.amazon.com/albums/B00AH69T22)
-
-[Metallica by Metallica](https://music.amazon.com/albums/B00AH69ZN0)
-
 ### Punk
 
 [Street Worms by Viagra Boys](https://music.amazon.com/albums/B07PJTGVQL)
