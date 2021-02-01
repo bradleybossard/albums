@@ -163,3 +163,6 @@
 
 [Cyberpunk by Billy Idol](https://music.amazon.com/albums/B0718SWSHL)
 
+### Instrumental
+
+[Long in the Tooth by The Budos Band](https://music.amazon.com/albums/B08D1SVBNP)
