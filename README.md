@@ -105,6 +105,8 @@
 
 [The Clash by The Clash](https://music.amazon.com/albums/B00EQRIGSG)
 
+[Horses by Patti Smith](https://music.amazon.com/albums/B0155P5CXO)
+
 ### Soundtracks
 
 [Fight Club (Original Motion Picture Score) by THE DUST BROTHERS](https://music.amazon.com/albums/B002LQI738)
@@ -116,6 +118,12 @@
 ### Soul
 
 [Black Pumas by Black Pumas](https://music.amazon.com/albums/B07QN748KC)
+
+[Introducing... by Aaron Frazer](https://music.amazon.com/albums/B08DV2SHP7)
+
+[Texas Sun by Khruangbin & Leon Bridges](https://music.amazon.com/albums/B07ZS5Q9WX)
+
+[Texas Moon by Khruangbin & Leon Bridges](https://music.amazon.com/albums/B09LKVF7Y3)
 
 ### Daft Punk
 
@@ -152,3 +160,7 @@
 ### Instrumental
 
 [Long in the Tooth by The Budos Band](https://music.amazon.com/albums/B08D1SVBNP)
+
+### Americana
+
+[One Day by The Cactus Blossoms](https://music.amazon.com/albums/B09L4BG1DH)
