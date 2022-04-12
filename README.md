@@ -26,6 +26,10 @@
 
 [Bad Witch by Nine Inch Nails](https://music.amazon.com/albums/B07DP6XSCQ)
 
+### Rock
+
+[Yours, Dreamily, by The Arcs](https://music.amazon.com/albums/B00YGTR31K)
+
 
 ### Desert Rock
 
