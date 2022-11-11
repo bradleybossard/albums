@@ -12,6 +12,36 @@
 
 [Human Performance by Parquet Courts](https://music.amazon.com/albums/B01BFVFHNC)
 
+### Crytstal Method
+
+[Vegas by The Crystal Method](https://music.amazon.com/albums/B000W297V4)
+
+[Tweekend by The Crystal Method](https://music.amazon.com/albums/B004NGUWMI)
+
+### DJ Shadow
+
+[Endtroducing..... by DJ Shadow](https://music.amazon.com/albums/B07M7FBQG9)
+
+[Our Pathetic Age by DJ Shadow on Amazon Music Unlimited](https://music.amazon.com/albums/B0979RKPT5)
+
+### Drug Dealer
+
+[Hiding in Plain Sight by Drugdealer](https://music.amazon.com/albums/B0B31Z9J94)
+
+### Spoon
+
+[Gimme Fiction by Spoon](https://music.amazon.com/albums/B073JWDWQH)
+
+[Ga Ga Ga Ga Ga by Spoon](https://music.amazon.com/albums/B000U7SMKS)
+
+[Kill the Moonlight by Spoon](https://music.amazon.com/albums/B07X4J3SVR)
+
+[Hot Thoughts by Spoon](https://music.amazon.com/albums/B01NBMQAIY)
+
+### Divine Fits
+
+[A Thing Called Divine Fits by Divine Fits](https://music.amazon.com/albums/B008UTX68G)
+
 ### Industrial
 
 [Pretty Hate Machine by Nine Inch Nails](https://music.amazon.com/albums/B00LWS3C5E)
