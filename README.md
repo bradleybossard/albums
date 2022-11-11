@@ -157,6 +157,25 @@
 
 [The Rise and Fall of Ziggy Stardust and the Spiders from Mars by David Bowie](https://music.amazon.com/albums/B07VZ1JTZM)
 
+### LCD Soundsystem
+
+[LCD Soundsystem by LCD Soundsystem](https://music.amazon.com/albums/B000TERDHA)
+
+[Sound of Silver by LCD Soundsystem](https://music.amazon.com/albums/B000SX9NAC)
+
+[This Is Happening by LCD Soundsystem](https://music.amazon.com/albums/B003HY3530)
+
+[american dream by LCD Soundsystem](https://music.amazon.com/albums/B074BH3QB7)
+
+### Kaiser Chiefs
+
+[Employment by Kaiser Chiefs](https://music.amazon.com/albums/B07TKKSP9M)
+
+[Yours Truly, Angry Mob (Deluxe) by Kaiser Chiefs](https://music.amazon.com/albums/B07TKK5FFS)
+
+[Duck by Kaiser Chiefs](https://music.amazon.com/albums/B07RK4QXRV)
+
+
 ### Cyberpunk
 
 [Cyberpunk by Billy Idol](https://music.amazon.com/albums/B0718SWSHL)
@@ -168,3 +187,14 @@
 ### Americana
 
 [One Day by The Cactus Blossoms](https://music.amazon.com/albums/B09L4BG1DH)
+
+
+### 80's
+
+[Kick by INXS](https://music.amazon.com/albums/B004T6V5HI)
+
+[The Best of INXS by INXS](https://music.amazon.com/albums/B00124FUGC)
+
+### Christmas
+
+[A Charlie Brown Christmas by Vince Guaraldi Trio](https://music.amazon.com/albums/B009GQ2NCC)
