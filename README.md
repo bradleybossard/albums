@@ -4,6 +4,14 @@
 
 [Street Worms by Viagra Boys](https://music.amazon.com/albums/B07PJTGVQL)
 
+### Parquet Courts
+
+[Sunbathing Animal + Content Nausea by Parquet Courts](https://music.amazon.com/albums/B019EJ3U2M)
+
+[Wide Awake! by Parquet Courts](https://music.amazon.com/albums/B079J6GXJ8)
+
+[Human Performance by Parquet Courts](https://music.amazon.com/albums/B01BFVFHNC)
+
 ### Industrial
 
 [Pretty Hate Machine by Nine Inch Nails](https://music.amazon.com/albums/B00LWS3C5E)
